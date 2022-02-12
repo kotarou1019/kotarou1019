@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kotarou1019
-- 👀 I’m interested in piaying game
+- 👀 I’m interested in playing game
 - 🌱 I’m currently learning proguraming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
